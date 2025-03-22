@@ -1,1 +1,1 @@
-Rebeling at Rebels Blocks
+Rebelling at Rebels Blocks
