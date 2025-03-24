@@ -1,1 +1,1 @@
-Rebelling at Rebels Blocks
+Rebel vibe coder
